@@ -1,4 +1,4 @@
-Byron Espinoza<br>
-Walter Payton College Prep<br>
+Byron Espinoza
+Walter Payton College Prep
 
 trail mix
